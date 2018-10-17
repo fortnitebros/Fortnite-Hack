@@ -1,3 +1,5 @@
+Purchase <a href="https://colossalcheats.com/cheats/fortnite-hack/">private Fortnite aimbot</a> from Colossal.
+
 Features
 Aimbot
 
